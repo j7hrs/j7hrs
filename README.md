@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @j7hrs
+- 👋 Hi, I’m @j7hrs, also known as egor1654
 - 👀 I’m interested in doing yo mom
 - 🌱 I’m currently learning python, lua
 - 💀 I forgor💀
